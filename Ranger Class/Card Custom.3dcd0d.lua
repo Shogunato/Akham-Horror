@@ -1,0 +1,1 @@
+--Dosent have a figurine: Stella Clark
